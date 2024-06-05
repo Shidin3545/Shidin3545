@@ -1,5 +1,2 @@
 - 👋 Hi, I’m Shidin shyju
-- BSC CS
-- Data science and AI
-- A innocent Job seeker...
-- huhuhuhuhuuhuhuuhuhuhuhuhuh
+- 
